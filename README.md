@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @souljito3000
+- 👀 I’m interested in backend developing
+- 🌱 I’m currently learning Python and Java
+- 📫 How to reach me @mvrtino___ instagram
+- ⚡ Fun fact: i´m also a dj
